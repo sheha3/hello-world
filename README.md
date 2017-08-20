@@ -1,1 +1,3 @@
-# hello-world
+Hello from the land of Pharaohs,
+My name is Mohamed Sheha. I'm from egypt. For the most of my life all I was donig was studying during school time or escape the boring classes to play football. During the summer vacations, I was either working to earn some money, learn about indusrial projects and gain experience in business or training with my friends which happens to be also my wonderful team. And since I found most of the classes boring, I played a lot of football and became the main goalkeeper of the city team. We won the silver medals in the State football championship.
+I currently study at the faculty of pharmacy Ain Shams U. Besides my love for molecular biology & chemistry I also want to learn how to deal with data. So here I am ready to start this wonderful adventure and make new friends from all over the world so that we can learn, chat and work together.
